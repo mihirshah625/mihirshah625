@@ -6,9 +6,8 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working with Accenture as an FP&A Analyst and I love finding solutions for problems with the help of numbers.
-- 🌱 I’m currently learning Power BI tool which can enhance representation of numbers in visual manner and better understanding.   
-- 🤔 I’m looking for help with ...
+- 🌱 I’m currently learning Power BI tool which can enhance visual representation.
 - 💬 Ask me about Indian Stock Market and you might as well land a few investment advise.  
 - 📫 How to reach me: mihirshah625@gmail.com
-- ⚡ Fun fact: I might not be great at first impression, however I am surprisingly friendly and a goofy person!
+- ⚡ Fun fact: I might not be great at first impression, however I am surprisingly friendly, a good company and a goofy person!
 -->
